@@ -1,5 +1,5 @@
 # Charles add personal info
-I am a sophomore software engineering major, and smart
+I am a amazing person
 # Xavier  add personal info 
 I like trains and planes
 # Riley add personal info
