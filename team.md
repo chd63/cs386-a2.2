@@ -1,4 +1,4 @@
 # Charles add personal info
 # Xavier  add personal info 
 # Riley add personal info
-I like to read and play video games :D 
+I like to read and play video , and my dog is cool
