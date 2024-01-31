@@ -1,1 +1,3 @@
-# cs386-a2.2
+#Charles add personal info
+#Xavier  add personal info 
+#Riley add personal info
